@@ -1,1 +1,1 @@
-Jag vet in¨te om detta bråkar med koden
+Jag vet in¨te om detta bråkar med kode
